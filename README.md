@@ -1,2 +1,7 @@
-머지?
-123
+![슬라이드19](https://github.com/user-attachments/assets/f05f03dd-291d-4d17-81db-5b1aa2ef9a85)
+![슬라이드20](https://github.com/user-attachments/assets/0c977723-b9bf-45bd-b155-18919da4b2d4)
+![슬라이드21](https://github.com/user-attachments/assets/2b84fb5f-4ab8-4cbd-a07d-4fe2b0666777)
+![슬라이드22](https://github.com/user-attachments/assets/fcf3089e-8c7c-404e-a344-1a8230ea011f)
+![슬라이드23](https://github.com/user-attachments/assets/3de76755-b6ca-4885-8f8d-02abd2252420)
+![슬라이드24](https://github.com/user-attachments/assets/a2d5e783-80bb-48ff-86af-4ef6382fb8ba)
+![슬라이드25](https://github.com/user-attachments/assets/2786fffe-e64d-4efd-88d3-a843592ffa3c)
